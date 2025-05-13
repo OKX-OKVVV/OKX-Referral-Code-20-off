@@ -1,4 +1,4 @@
-**How to Use an OKX Referral Code**
+### **How to Use an OKX Referral Code**
 
 Applying an OKX Referral Code during registration unlocks trading fee discounts and other rewards. 
 
