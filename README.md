@@ -1,10 +1,12 @@
-### **How to Use an OKX Referral Code**
+# **Sign up to OKX and get 20% discount on trading fees**
+
+**How to Use an OKX Referral Code**
 
 Applying an OKX Referral Code during registration unlocks trading fee discounts and other rewards. 
 
 Follow these steps to ensure eligibility for your discount:
 
-**Create an OKX Account:** Visit the [OKX website](https://www.okx.com/join/OKVVV) or download the app, then click "Sign Up" to start.
+**[Create an OKX Account:](https://www.okx.com/join/OKVVV)** Visit the OKX website or download the app, then click "Sign Up" to start.
 Enter the Referral Code: In the registration form, locate the "Referral ID (Optional)" field and input the code before proceeding.
 
 **Complete Know Your Customer (KYC) Verification:** Submit a valid government-issued ID, such as a passport or driver's license, to verify your identity. This step is required to activate rewards.
